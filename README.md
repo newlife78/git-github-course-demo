@@ -13,5 +13,3 @@ Adding mistake 1.
 Adding mistake 2.
 
 Adding mistake 3.
-
-Adding mistake 4.
