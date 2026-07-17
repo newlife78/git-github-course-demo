@@ -11,5 +11,3 @@ Portland blackbird spyplane super 8 lambrusco, XOXO roaster sustainable four lok
 Adding mistake 1.
 
 Adding mistake 2.
-
-Adding mistake 3.
